@@ -1,0 +1,1 @@
+link the nvf file to the faceTrackCHOP in order to use faceTrackSOP
