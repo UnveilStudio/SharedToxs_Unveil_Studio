@@ -7,6 +7,9 @@ if you want to donate something,
 feel free to send an email to : unveil.contact.berlin@gmail.com,
 i ll send you my paypal.
 
+if you are out of money like me, at least subcribe to my youtube channel:
+
+
 Many Thanks for dropping by,
 
 Happy programming!!!
