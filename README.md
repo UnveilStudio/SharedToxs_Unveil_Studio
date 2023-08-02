@@ -4,10 +4,13 @@ This is my pubblic repo, feel free to use everything in any way you want.
 I just ask,to contact me and put my credits in your works,
 
 if you want to donate something,
-feel free to send an email to : unveil.contact.berlin@gmail.com,
-i ll send you my paypal.
+https://www.patreon.com/unveil_studio
 
-if you are out of money like me, at least subcribe to my youtube channel:
+if you want to contact me:
+unveil.contact.berlin@gmail.com
+
+
+Please consider to subcribe to my youtube channel:
 
 https://www.youtube.com/channel/UCzI4Lb637GIpF8Jdk_q6wIA
 
